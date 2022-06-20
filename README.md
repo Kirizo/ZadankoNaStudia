@@ -1,0 +1,2 @@
+# ZadankoNaStudia
+Jak w nazwie
