@@ -1,2 +1,2 @@
-# ZadankoNaStudia
-Jak w nazwie
+# Łukasz 16760 C3
+
